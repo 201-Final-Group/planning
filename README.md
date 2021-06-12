@@ -2,7 +2,7 @@
 
 ## Members
 
-Matt Miguel, Yirim Seck, Zach Winterton, Quentin Young
+Matt Miguel, Yirim Seck, Zach Winterton, Quentin Young, simpson
 
 ## Strengths
  
